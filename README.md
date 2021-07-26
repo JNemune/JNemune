@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JNemune
-- 👀 I’m interested in Coding, Python, Crypto Currancy, Mathemathics, Physics, Astronomy, EDM Musics and a lot of other things.
+- 👀 I’m interested in Coding, Python, Cryptocurrency, Mathemathics, Physics, Astronomy, EDM Musics and a lot of other things.
 - 🌱 I’m currently learning Python.
 - 💞️ I’m looking to collaborate on anything I can do.
 - 📫 How to reach me T.me/JNemune
